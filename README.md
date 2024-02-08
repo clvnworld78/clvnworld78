@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @clvnworld78, an undergrad student of Information System in Indonesia
-- 👀 My native language is Indonesia, I'm proficient in English, and currently learning 한국어 (Korea)
+- 👀 My native language is Indonesian, I'm proficient in English, and currently learning 한국어 (Korean)
 - 🌱 I’m currently learning Cloud Computing
 - 📫 You can reach me through my email on calvincaesar777@gmail.com
 
